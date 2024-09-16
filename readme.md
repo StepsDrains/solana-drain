@@ -2,7 +2,7 @@
 
 ### 🚀STABLE OPERATION IS GUARANTEED
 
-### You can buy the script in Telegram, write: [@TON Drainer Support](https://t.me/StepDrainer)
+### You can buy the script in Telegram, write: [@Drainer Support](https://t.me/StepDrainer)
 
 🚀 A unique project without analogues
 Step SOL Drainer is an innovative platform that has no analogues in the cryptosphere. Join and open access to the best opportunities!
